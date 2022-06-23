@@ -1,2 +1,0 @@
-# Damir-wikipedia
-uzbekistan
